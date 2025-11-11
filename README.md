@@ -1,4 +1,6 @@
 About me
+
+
 I grew up in the Netherlands 🇳🇱 and started Elite gymnastics at an age of 18 🤸🏻‍♂️ It’s pretty late to start with gymnastics at an age like that. I learned that if you have a passion for something, work hard & persist, **you can achieve anything you want** 🚀
 
 
